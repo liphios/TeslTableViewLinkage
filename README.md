@@ -6,4 +6,4 @@
 
 
 
-（https://www.apowersoft.cn/video-to-gif-online）
+https://www.apowersoft.cn/video-to-gif-online
